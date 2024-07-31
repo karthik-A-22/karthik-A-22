@@ -22,8 +22,8 @@ Here are some of the projects I've worked on:
 
 ## 📫 How to Reach Me
 
-- **Email:** [karthik.a2219905@gmail.com](mailto:karthik.a2219905@gmail.com)
-- **LinkedIn:** [karthik-a](https://www.linkedin.com/in/karthik-a-59006b228/)
+- **Email:** [karthik.a.dev24@gmail.com](mailto:karthik.a.dev24@gmail.com)
+- **LinkedIn:** [karthik-a](https://www.linkedin.com/in/karthik-a-69656a320/)
 
 ## ⚡ Fun Fact
 
